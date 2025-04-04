@@ -6,7 +6,7 @@
 ## choicy
 ![choicy](https://github.com/user-attachments/assets/cc8a9207-78fa-4f3c-904d-004a86100fc0)
 ## traveling
-![traveling](https://github.com/user-attachments/assets/494f58de-c1d3-4c07-b429-799ecc85596d)
+![traveling](https://github.com/user-attachments/assets/f53ba785-e176-483b-b18b-4f9bb52df977)
 ## Restika
 ![rastika](https://github.com/user-attachments/assets/0388cb86-cf53-48c4-9bd1-0a5dbbe1719c)
 ## Kinder-academy
